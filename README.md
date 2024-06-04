@@ -11,3 +11,6 @@ _Meu nome e Wander_
 00001105283732sp@al.educacao.sp.gov.br
 
 Instagram:@kauander_17
+
+
+![](![image](https://github.com/Wadragon17/Wadragon17/assets/170425335/584aedae-e431-45d6-b483-85c36f46fa47))
