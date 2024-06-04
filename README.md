@@ -12,5 +12,5 @@ _Meu nome e Wander_
 
 Instagram:@kauander_17
 
+![](https://media1.tenor.com/m/3VpdExSEMBoAAAAd/naofumi-shield-hero.gif)
 
-![](![image](https://github.com/Wadragon17/Wadragon17/assets/170425335/584aedae-e431-45d6-b483-85c36f46fa47))
