@@ -11,5 +11,4 @@ wandersantos898@gmail.com
 
 Instagram:@kauander_17
 
-![](https://media1.tenor.com/m/3VpdExSEMBoAAAAd/naofumi-shield-hero.gif)
-
+![] (https://tenor.com/pt-BR/view/bakugou-katsuki-mha-memes-triggered-gif-25594474)
