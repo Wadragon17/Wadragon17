@@ -11,4 +11,4 @@ wandersantos898@gmail.com
 
 Instagram:@kauander_17
 
-![](https://tenor.com/pt-BR/view/bakugou-katsuki-mha-memes-triggered-gif-25594474)
+![](https://tenor.com/pt-BR/view/bakugou-katsuki-mha-memes-triggered-gif)
